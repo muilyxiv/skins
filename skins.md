@@ -1,4 +1,4 @@
-I also use the black slider rafis skin and vaxei dt skin sometimes but i am too lazy to upload those here
+# I also use the black slider rafis skin and vaxei dt skin sometimes but I am too lazy to upload those here
 
 # [- ikanyai edit](https://muilyxiv.s-ul.eu/ovFDQkam) 
 ![](https://media.discordapp.net/attachments/819895623825358882/955203091207188510/screenshot803.jpg?width=722&height=406)
