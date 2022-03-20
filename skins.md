@@ -11,3 +11,6 @@
 
 # [- toke skin edit](https://muilyxiv.s-ul.eu/l3atInUR) 
 ![](https://media.discordapp.net/attachments/819895623825358882/955202884579000320/screenshot802.jpg?width=722&height=406)
+
+# [- other boop edit](https://muilyxiv.s-ul.eu/DRII1KPK) 
+![](https://media.discordapp.net/attachments/819895623825358882/955208082819018862/screenshot804.jpg?width=722&height=406)
