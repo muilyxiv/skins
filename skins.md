@@ -1,5 +1,5 @@
 # [- ikanyai edit](https://muilyxiv.s-ul.eu/ovFDQkam) 
-![](https://media.discordapp.net/attachments/819895623825358882/955200199431708732/screenshot796.jpg?width=658&height=370)
+![](https://media.discordapp.net/attachments/819895623825358882/955203091207188510/screenshot803.jpg?width=722&height=406)
 
 # [- some boop edit](https://muilyxiv.s-ul.eu/o6APdnUW) 
 ![](https://media.discordapp.net/attachments/819895623825358882/955202177134108732/screenshot800.jpg?width=722&height=406)
