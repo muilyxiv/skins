@@ -14,3 +14,6 @@
 
 # [- other boop edit](https://muilyxiv.s-ul.eu/DRII1KPK) 
 ![](https://media.discordapp.net/attachments/819895623825358882/955208082819018862/screenshot804.jpg?width=722&height=406)
+
+# [- default edit](https://muilyxiv.s-ul.eu/NdP3YmTT)
+![](https://media.discordapp.net/attachments/819895623825358882/957298422254284820/screenshot809.jpg?width=722&height=406)
